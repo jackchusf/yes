@@ -1,2 +1,2 @@
-# yes
+# YES
 Youth Enrichment Society
